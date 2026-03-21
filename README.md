@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a engineering student at NHCE<br>
+I am an engineering student at NHCE<br>
 
 
 ## 🌐 Socials:
